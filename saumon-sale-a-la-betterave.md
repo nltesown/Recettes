@@ -1,7 +1,7 @@
 # Saumon salé à la betterave (style gravlax)  
 (Beet-cured salmon) 
 
-1 **filet de saumon** (environ 600 g), peau et arêtes retirées  
+1 **pavé de saumon frais** (environ 600 g), peau et arêtes retirées  
 250 g de **betterave** crue  
 85 g de **sel** (flocons ou gros sel écrasé au pilon)  
 85 g de **sucre en poudre**  
