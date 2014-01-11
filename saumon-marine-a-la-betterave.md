@@ -1,5 +1,6 @@
-# Saumon mariné à la betterave (style gravlax)  
-(Beet-cured salmon) 
+# Saumon mariné à la betterave
+
+(Beet-cured salmon, Russell Norman, [*Polpo*](http://www.amazon.fr/dp/1408816792), p. 139) 
 
 1 **pavé de saumon frais** (environ 600 g), peau et arêtes retirées  
 250 g de **betterave** crue  
@@ -22,5 +23,3 @@ Lorsque le saumon est prêt, jeter de la mixture, bien retirer tous les morceaux
 Pour le consommer, couper des tranches fines et servir avec du raifort.
 
 Le saumon peut se conserver environ 1 semaine au réfrigérateur emballé dans du film alimentaire.
-
-(Russell Norman, *Polpo*, p. 139)
