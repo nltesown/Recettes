@@ -1,8 +1,8 @@
 # Martini
 
-50 ml **Tanqueray gin**
-15 ml **extra dry vermouth**
-1 **olive** or twist of **lemon zest**
+* 50 ml **Tanqueray gin**
+* 15 ml **extra dry vermouth**
+* 1 **olive** or twist of **lemon zest**
 
 Stir all the ingredients with cubed ice for 60 seconds. Strain into a chilled martini glass and garnish with an olive or a twist of lemon zest.
 
@@ -24,5 +24,6 @@ The earliest reference to a Martini Cocktail that I know of comes from Wehman's 
   
 It sounds suspiciously like a Martinez, and so it corroborates the link between the two drinks nicely.
 
+(...)
 
 (Tristan stephenson, *The Curious Bartender*, p. 44)
