@@ -20,7 +20,7 @@ As for the origins of this drink, well, as you would expect from a cocktail as m
 
 The earliest reference to a Martini Cocktail that I know of comes from Wehman's *Bartender's Guide* (1891) by Henry J. Wehman:
 
-  (Use large bar glass) Fill the glass with ice, 2 or 3 dashes gum syrup, 2 or 3 dashes Bitter, 1 dash of curaçoa, ½ wine glassful of Old Tom Gin, ½ wine glassful of vermouth.
+> (Use large bar glass) Fill the glass with ice, 2 or 3 dashes gum syrup, 2 or 3 dashes Bitter, 1 dash of curaçoa, ½ wine glassful of Old Tom Gin, ½ wine glassful of vermouth.
   
 It sounds suspiciously like a Martinez, and so it corroborates the link between the two drinks nicely.
 
