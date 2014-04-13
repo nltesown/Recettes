@@ -15,9 +15,9 @@ Laisser la pâte reposer une heure au réfrigétateur.
 
 Préchauffer le four à 160°C.
 
-Former des billes de pâte et les disposer sur une plaque à four beurrée, en laissant un espacement entre les billes (la pâte s'étale pendant la cuisson). Aplatir les billes avec une planche en bois.
+Former des boules de pâte de la taille d'une grosse bille (environ 12 g chacune) et les disposer sur une plaque à four beurrée en laissant suffisamment (la pâte s'étale pendant la cuisson). Aplatir les billes en ronds d'environ 3-4 mm d'épaisseur.
 
-Faire cuire 15 minutes à 160°C.
+Faire cuire 15 minutes.
 
 Source : *Koekje*, p. 216
 
