@@ -20,3 +20,5 @@ Former des billes de pâte et les disposer sur une plaque à four beurrée, en l
 Faire cuire 15 minutes à 160°C.
 
 Source : *Koekje*, p. 216
+
+Note: le ratio sucre-beurre-farine est environ : 1 / 1,5 / 2,5 (à comparer au ratio de base 1/2/3).
