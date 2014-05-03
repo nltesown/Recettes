@@ -10,7 +10,8 @@ Pour 4 personnes
 + les feuilles de 2 grandes branches de **thym**
 + 1 cuil. soupe de **vinaigre de Jerez**
 + 1 cuil. soupe de **persil plat** haché
-+ Sel de mer, poivre fraîchement moulu
++ **Sel de mer**
++ **Poivre** fraîchement moulu
 
 Faire chauffer 2 cuil. soupe d'**huile** dans une grande poêle. Ajouter l'**oignon**. Couvrir et cuire à feu moyen/doux, en remuant de temps en temps, pendant 15 min ou jusqu'à ce que l'oignon soit tendre et un peu caramélisé.
 
@@ -18,7 +19,7 @@ Pendant ce temps, cuire les **pommes de terre** pendant 15 min jusqu'à ce qu'el
 
 Couper le corps des **calamars** en anneaux de 7-8 mm d'épaisseur. Laisser les tentacules telles quelles.
 
-Dans une petite poêle, faire chauffer 1 cuil. soupe d'**huile**, ajoute les **pommes de terre**, partie coupée vers le bas. Frire à feu moyen 2-3 min, en les retournant à mi-cuisson. Les réserver à feu très doux.
+Dans une petite poêle, faire chauffer 1 cuil. soupe d'**huile**, ajouter les **pommes de terre**, partie coupée vers le bas. Frire à feu moyen 2-3 min, en les retournant à mi-cuisson. Les réserver à feu très doux.
 
 Dans une grande poêle, faire chauffer 1 cuil. soupe d'**huile**. Ajouter la moitié des **calamers**, la moitié du **piment**, saler, et frire à feu vif pendant 1 min 1/2, en ajoutant la moitié de l'**ail** à mi-cuisson. Lorsque le calamar est cuit et caramélisé, le transférer dans la petite poêle avec les pommes de terre. Frire de la même façon le reste des calamars.
 
