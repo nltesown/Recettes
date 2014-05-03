@@ -15,10 +15,11 @@ Laisser la pâte reposer une heure au réfrigétateur.
 
 Préchauffer le four à 160°C.
 
-Former des boules de pâte de la taille d'une grosse bille (environ 12 g chacune) et les disposer sur une plaque à pâtisserie beurrée, en les espaçant suffisamment (la pâte s'étale pendant la cuisson). Aplatir les billes en ronds d'environ 3-4 mm d'épaisseur.
+Former des boules de pâte de la taille d'une grosse bille (environ 12 g chacune) et les disposer sur une plaque à pâtisserie beurrée, en les espaçant autant que possible. Aplatir les billes en disques fins (2 mm).
 
 Faire cuire 15 minutes.
 
 Source : *Koekje*, p. 216
 
 Note: le ratio sucre-beurre-farine est environ : 1 / 1,5 / 2,5 (à comparer au ratio de base 1/2/3).
+
