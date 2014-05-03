@@ -5,7 +5,7 @@ Pour 4 personnes
 + 5 cuil. soupe d'**huile d'olive extra vierge**
 + 1 **oignon** moyen, coupé en deux puis tranché fin
 + 250 g petites **pommes de terre** de type Charlotte
-+ 500 g de **calamar** entier, nettoyé (1 grand)
++ 1 **calamar** entier, nettoyé (500-600 g)
 + 1/2 cuil. café de **piment séché** écrasé (type piment d'Espelette)
 + 1 gousse d'**ail**, tranchée fin
 + les feuilles de 2 grandes branches de **thym**
