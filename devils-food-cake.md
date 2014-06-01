@@ -35,7 +35,11 @@ Répartir la préparation dans les deux moules et cuire 25 min. Laisser refroidi
 
 **Prépaper la ganache :**
 
+Faire fondre à feu doux au bain-marie les morceaux de **chocolat** et l'**eau**. Transférer de la casserole du bain-marie (si vous en utilisez) dans une casserole normale.
 
+Couper le beurre en petits cubes et l'intégrer en le fouettant dans le **chocolat** jusqu'à ce qu'il soit complètement fondu et que la ganache soit lisse. Laisser refroidir jusqu'à ce que l'épaisseur permette de l'étaler (environ 1 h à température ambiante).
+
+Pour glacer le gâteau : démouler les gâteaux. Placer le premier gâteau sur une assiette et étaler une bonne couche de ganache sur le dessus. Déposer le second gâteau par dessus et étaler le reste de ganache dessus et sur les côtés.
 
 
 Source : http://www.davidlebovitz.com/2007/08/devils-food-cak/
