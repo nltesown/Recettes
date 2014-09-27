@@ -11,7 +11,8 @@ http://www.bbc.co.uk/food/recipes/creamycourgettesouff_11229
 
 * Easy Ricotta Gnocchi  
 http://www.thekitchn.com/recipe-easy-ricotta-gnocchi-51370
-* 
+* Chicken-and-Sausage Gumbo  
+http://www.myrecipes.com/recipe/chicken-and-sausage-gumbo-10000000701065/
 
 ## Desserts
 
