@@ -17,5 +17,7 @@ http://www.thekitchn.com/recipe-easy-ricotta-gnocchi-51370
 
 * Chocolate Mousse (Hervé This)  
 http://food52.com/recipes/16044-herve-this-chocolate-mousse
-* 
+* Rhubarb Galette (Alice Waters)  
+http://online.wsj.com/article/SB10001424052702304569504576403840445923646.html
+
 
