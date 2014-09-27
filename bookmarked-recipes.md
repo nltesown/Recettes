@@ -2,7 +2,7 @@
 
 ## Starters (or light mains)
 
-* Leeks with Mustard-Bacon Vinaigrette (David Lebovitz)  http://food52.com/recipes/28017-leeks-with-mustard-bacon-vinaigrette
+* Leeks with Mustard-Bacon Vinaigrette (David Lebovitz)   http://food52.com/recipes/28017-leeks-with-mustard-bacon-vinaigrette
 * Creamy Courgette Soufflé (Hugh Fearnley-Whittingstall)  
 http://www.bbc.co.uk/food/recipes/creamycourgettesouff_11229
 
