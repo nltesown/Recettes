@@ -1,7 +1,7 @@
 # Pâte brisée (au blender)
 
 * 140 g **farine**
-*2 cuil. café **sucre** (optionnel, pour une pâte sucrée)
+* 2 cuil. café **sucre** (optionnel, pour une pâte sucrée)
 * 1/4 cuil. café **sel**
 * 85 g **beurre** non salé, réfrigéré, coupé en cubes de 1,5 cm de côté
 * 3 cuil. café **eau** glacée
