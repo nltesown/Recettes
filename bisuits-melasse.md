@@ -1,10 +1,10 @@
 # Biscuits à la mélasse
 
-* 3/4 tasse de **beurre fondu**
-* 1 tasse de **sucre**
+* 170 g (3/4 tasse) de **beurre fondu**
+* 200 g (1 tasse) de **sucre**
 * 1/4 tasse de **mélasse**
 * 1 **&oelig;uf**
-* 2 tasses de **farine**
+* 250 g (2 tasses) de **farine**
 * 2 c. café de **levure chimique**
 * 1/2 c. café de **clou de girofle** moulu
 * 1/2 c. café de **gingembre** en poudre
