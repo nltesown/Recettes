@@ -1,7 +1,7 @@
 # Kaastengels (Bâtonnets au fromage)
 
 * 200 g **fromage affiné râpé**
-* 200g **beurre**
+* 200 g **beurre**
 * 30 g **eau**
 * 1 pincée **poivre**
 * 1 pincée **sel**
