@@ -1,12 +1,12 @@
 # Kaastengels (Bâtonnets au fromage)
 
-200 g **fromage affiné râpé**
-200g **beurre**
-30 g **eau**
-1 pincée **poivre**
-1 pincée **sel**
-200 g **farine**
-1 **œuf** légèrement battu
+* 200 g **fromage affiné râpé**
+* 200g **beurre**
+* 30 g **eau**
+* 1 pincée **poivre**
+* 1 pincée **sel**
+* 200 g **farine**
+* 1 **œuf** légèrement battu
 
 Mélanger le **fromage râpé** avec le **beurre**, l'**eau**, le **sel** et le **poivre**. Incorporer la **farine**. Laissez reposer la pâte couverte 1 heure au réfrigérateur. Etaler la pâte sur une surface légèrement farinée en pour former un carré de 2 mm d'épaisseur. Avec une fourchette, tracer des dans la pâte avec l'**œuf** battu. Couper la pâte en bandes de 1 &times; 6 cm et les placer sur une plaque à pâtisserie recouverte de papier sulfurisé. Cuire les bâtonnets environ 15 minutes dans un four préchauffé à 170° C jusqu'à ce qu'ils aient un couleur jaune doré. Atention ! S'ils prennent une couleur sombre, ils peuvent prendre un goût amer. 
 
