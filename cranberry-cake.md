@@ -1,19 +1,21 @@
 # Cranberry cake
 
-* 3 **&oelig;ufs**
-* 2 tasses **sucre**
-* 3/4 tasse **beurre doux**, en cubes ramollis à température ambiante pendant 1 heure
-* 1 c. café **extrait de vanille**
-* 1 c. cagé **extrait d'amande** (facultatif)
-* 2 tasses **farine**
-* 1 c. café **sel**
-* 2 1/2 tasses **cranberries**
+Moitié de la quantité de la recette d'origine.
+
+* 1,5 **œufs**
+* 1 tasse (200 g) **sucre**
+* 90 g **beurre doux** en dés, ramolli à température ambiante pendant 1 heure
+* 0,5 c. café **extrait de vanille**
+* 0,5 c. café **extrait d'amande** (facultatif)
+* 1 tasse (125 g) **farine**
+* 0,5 c. café **sel**
+* 2,25 tasses **cranberries**
 
 Garniture de noix de pécan (facultatif) :
 
-* 1/4 tasse **beurre doux**
-* 1/4 tasse **sucre brun**
-* 1 tasse **noix de pécan** crues
+* 30 g **beurre doux**
+* 25 g **sucre brun**
+* 0,5 tasse **noix de pécan** crues
 
 
 
