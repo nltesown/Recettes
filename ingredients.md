@@ -9,7 +9,7 @@ NVC : _The New Vegetarian Cooking for Everyone_ (Deborah Madison)
 
 Se combine avec : huile d'olive, yaourt, crème fraîche, vinaigre, citron, orange, moutarde, raifort, câpres, piment, persil, aneth, estragon, coriandre, cumin, curry, oignons, pomme, endive.
 
-Préparation : cru, au four, à la vapeur, bouilli
+Préparation : cru, au four, à la vapeur, bouilli.
 
 - Vinegar-glazed 5-to-10-minute beets (NVC 304)
 - Roasted beets, apples and onions with cider vinegar (NVC 305)
@@ -29,3 +29,5 @@ Préparation : cru, au four, à la vapeur, bouilli
 - Beetroot dip (Pancar Ezmesi) (Istanbul 86)
 - Beet, cucumber and celery relish (CPV 46)
 - Beetroot, yoghurt and preserved lemon relish (Plenty 19)
+
+Test.
