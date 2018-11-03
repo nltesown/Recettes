@@ -1,8 +1,8 @@
 # Ingrédients
 
 ASF : _The Art of Simple Food_ (Alice Waters)
-CIC : _The Fundamental Techniques of Classic Italian Cuisine_ (Cesare Casella, Stephanie Lyness)
-CPV : _Chez Panisse Vegetables_ (Alice Waters)
+CIC : _The Fundamental Techniques of Classic Italian Cuisine_ (Cesare Casella, Stephanie Lyness)  
+CPV : _Chez Panisse Vegetables_ (Alice Waters)  
 NVC : _The New Vegetarian Cooking for Everyone_ (Deborah Madison)
 
 ## Betterave
