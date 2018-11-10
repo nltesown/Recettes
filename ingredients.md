@@ -30,4 +30,12 @@ Préparation : cru, au four, à la vapeur, bouilli.
 - Beet, cucumber and celery relish (CPV 46)
 - Beetroot, yoghurt and preserved lemon relish (Plenty 19)
 
-Test.
+## Oseille
+
+Printemps, été, automne.
+
+Se combine avec : œufs, pommes de terre.
+
+- Potato and sorrel gratin (CPV 264)
+- Sorrel soup (CPV 265, NVC 185)
+- Sorrel [+ yoghurt] sauce (Plenty 149)
