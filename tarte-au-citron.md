@@ -32,3 +32,11 @@ Pour l'appareil :
 - 4 jaunes d'**œufs**
 
 Four à 180°C.
+
+Dans une casserole moyenne, faire chauffer le jus de citron, le zeste, le sucre, les œufs et les jaunes d'œufs.
+
+Ajouter le beurre jusqu'à ce qu'il soit fondu, puis fouetter le mélange jusqu'à ce qu'il épaississe (quelques minutes).
+
+Passer le mélange au tamis dans un bol ou directement sur le fond de tarte. Lisser la surface, cuire jusqu'à ce que la garniture soit tout juste prise, environ 5-6 min.
+
+Laisser refroidir un peu avant de servir.
