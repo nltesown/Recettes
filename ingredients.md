@@ -34,11 +34,7 @@ Préparation : cru, au four, à la vapeur, bouilli.
 
 Printemps, été, automne.
 
-<<<<<<< HEAD
 Se combine avec : œufs, pommes de terre.
-=======
-Se combine avec : œufs, pommes de terres.
->>>>>>> 9dd84b18fd46d66c1ea8c7e36da4a0e565dcb43d
 
 - Potato and sorrel gratin (CPV 264)
 - Sorrel soup (CPV 265, NVC 185)
